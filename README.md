@@ -8,3 +8,5 @@
 
 # YOU MOST LIKELY SUCK AT THIS GAME LMFAOO
 # SUPPORT THE DEVS THEY ARE COOL PEOPLE
+
+**This Guys Stinks just because is the unique game he can play **
